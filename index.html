@@ -1,0 +1,36 @@
+![](https://upload.wikimedia.org/wikipedia/en/thumb/1/1d/Confederation_college_logo.jpg/250px-Confederation_college_logo.jpg)
+
+---
+**Confederation College**
+```
+Rob McCormack, P. Eng.
+Professor
+IMD Program
+Phone: 807.475.6180
+```
+- http://www.linkedin.com/in/mrmccormack
+
+- [Email : Rob.McCormack@confederationc.on.ca ](mailto:Rob.McCormack@confederationc.on.ca)
+
+Find me on Google:
+- http://google.com/+MrMcCormack
+
+> About Mr. M.
+- http://www.linkedin.com/in/mrmccormack
+
+For Google Doc sharing, please use:
+- mrmccormack@gmail.com
+
+For email, please use ONLY
+- mccormac@confederationc.on.ca
+
+http://www.confederationcollege.ca/program/interactive-media-development
+
+[- About Confederation College](https://goo.gl/maps/4NecjPiZg4G2)
+
+Short link to this page: 
+- https://tinyurl.com/mrmsig
+
+---
+*Note:*
+- https://app.classeur.io/  (mrmccormack@gmail.com account)
